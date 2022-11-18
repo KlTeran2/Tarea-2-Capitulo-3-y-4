@@ -53,7 +53,7 @@ capitulo 4.-
 ![image](https://user-images.githubusercontent.com/117742027/202743356-bead0cc0-051a-46fd-af37-3558b1d8a320.png)
 
 
-4.-Video : 
+4.-Video : https://www.youtube.com/watch?v=U7zg9i2odfQ
 
 5.- Conclusiones:
 
